@@ -7,7 +7,7 @@
 
 
 
-                                   Stay hungry, stay foolish!
+                                   Stay hungry, Stay foolish!
 
 
 
