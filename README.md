@@ -1,2 +1,18 @@
-# blog
-hourong‘s blog
+
+
+
+
+
+
+
+
+
+                                   Stay hungry, stay foolish!
+
+
+
+
+
+
+
+
